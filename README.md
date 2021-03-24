@@ -1,1 +1,1 @@
-# https://lenamhpv.github.io/Freelancer/
+# https://lenamhpv.github.io/freelancer/
